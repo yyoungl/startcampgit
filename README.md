@@ -1,0 +1,1 @@
+# startcampgit
